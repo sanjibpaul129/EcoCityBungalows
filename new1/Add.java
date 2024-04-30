@@ -1,0 +1,3 @@
+thank you for giving me oppucunati to intruduction  of in frount of yours self...hi, I am pallab mahata, , i have  completed my 10 th from Jhargram BTHS.and 12th from DPHS, i am currently final year student of Computer science and engineering in BC Roy Engineering college , Durgapur. 
+My subjects of interests are C, Java, DS,DBMS. 
+I want to take any opportunity and learn about banking or finance as those are new to me. My aim is to become a professional as soon as possible to support my family financially. I am very serious about my work and can complete within time. That's all about me.
